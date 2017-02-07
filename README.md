@@ -2,4 +2,4 @@
 
 Go Terps!
 
-Time to walk Lou.
+Time to walk Lou!
